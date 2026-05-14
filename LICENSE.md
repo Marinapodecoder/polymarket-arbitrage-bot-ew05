@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket plugin with instant Polymarket Plugin | volatility-detection + volume-analysis. Featuring volatility-detection and volume-analysis, it's the best
 
 
 
